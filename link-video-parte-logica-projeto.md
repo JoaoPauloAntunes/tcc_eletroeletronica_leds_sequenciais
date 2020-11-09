@@ -1,1 +1,0 @@
-[Parte Lógica Projeto TCC Eletroeletrônica](https://www.youtube.com/watch?v=P6bvCLvE0AY&feature=youtu.be&ab_channel=Jo%C3%A3oPauloAntunesdeSouza)
